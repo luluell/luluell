@@ -11,7 +11,7 @@
 <p align="center" > <img src="https://media.tenor.com/gYiMFYc7yOkAAAAj/green-heart-green.gif" width="10" height="10"> <a href="https://rentry.co/p3k9ydyh">
   More </a>   𓂃⊹ ִֶָ  ${\textsf{\color{#39FF14} info }}$ 
 
-<a href="looeysfunroom.atabook.org">
+<a href="https://looeysfunroom.atabook.org/">
   ata </a> ༚༅༚˳
 
 ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀  ![](https://komarev.com/ghpvc/?username=luluell&style=plastic&color=F5CD2F&label=_　_🎈_　　&base=100980)
