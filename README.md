@@ -4,5 +4,5 @@
 
 <p align="center"> ๑⁠♡ ${\textsf{\color{#FFFF00} lou }}$ ou ${\textsf{\color{#BC13FE} looey }}$ <img src="https://media.tenor.com/pTixoLafSKgAAAAj/purple-purplecore.gif" width="30" height="20">
 
-<p align="center" > <img src="https://media.tenor.com/gYiMFYc7yOkAAAAj/green-heart-green.gif" width="10" height="10"> <a href="https://kangelisyourangel.straw.page">
+<p align="center" > <img src="https://media.tenor.com/gYiMFYc7yOkAAAAj/green-heart-green.gif" width="10" height="10"> <a href="https://rentry.co/p3k9ydyh">
   More </a>   𓂃⊹ ִֶָ  ${\textsf{\color{#39FF14} info }}$
