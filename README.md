@@ -6,7 +6,9 @@
 
 <p align="center"> ๑⁠♡ ${\textsf{\color{#FFFF00} 𝑳ou }}$ ou ${\textsf{\color{#BC13FE} 𝑳ooey }}$ <img src="https://media.tenor.com/pTixoLafSKgAAAAj/purple-purplecore.gif" width="30" height="20">
 
-<p align="center"> ${\textsf{\color{#FFFF00} 6𝙩𝙚𝙚𝙣 }}$ ${\textsf{\color{#39FF14} sys }}$ - ${\textsf{\color{#BC13FE} wi𝘀𝗲! }}$
+<p align="center"> ${\textsf{\color{#FFFF00} 6-8𝙩𝙚𝙚𝙣 }}$ ${\textsf{\color{#39FF14} sys }}$ - ${\textsf{\color{#BC13FE} wi𝘀𝗲! }}$
+
+> confusinf i know.. bare wit me..
 
 <p align="center" > <img src="https://media.tenor.com/gYiMFYc7yOkAAAAj/green-heart-green.gif" width="10" height="10"> <a href="https://rentry.co/p3k9ydyh">
   More </a>   𓂃⊹ ִֶָ  ${\textsf{\color{#39FF14} i𝒏𝒇o }}$ 
